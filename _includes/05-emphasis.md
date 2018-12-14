@@ -1,1 +1,1 @@
-Aaron is **committed** and **true** to those around him.
+Aaron is **committed** and **true** to those around him. 
